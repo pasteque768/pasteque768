@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @pasteque768
+- 👀 I’m interested in Python and C++
+- 🌱 I’m currently learning in 8th grade
+- 📫 How to reach me bendc1smail@gmail.com
+- 
